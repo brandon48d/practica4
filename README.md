@@ -1,2 +1,3 @@
 # practica4
-![Captura de pantalla (61)](https://github.com/brandon48d/practica4/assets/147564408/e963e5e0-8db7-41c1-b529-d0d36b65f066)
+![Captura de pantalla (61)](https://github.com/brandon48d/practica4/assets/147564408/a489213f-43a9-4649-9862-7435ba08566d)
+
